@@ -1,0 +1,1 @@
+naptıını anlatıyon burda
